@@ -1,5 +1,11 @@
-##### 【YouTube】[人間としての哲学講座 6 「考え」と「言葉」](https://youtu.be/RSxr3_CWNSM?si=wpcuy1SgeQgE3y2s) - gaetano compri
+##### 【YouTube】[人間としての哲学講座 7 自由意思がある人間](https://youtu.be/hhufTk8OgNo?si=WY_MsMAvrs75wt-K) - gaetano compri
 
-> 言葉の意味はいつも「文字通り」ではない
+> 心の中の自由意志
 
-> 正しいことを求める心をお互いになければならない
+> 自由は、意識と自覚の範囲内である。
+
+> 最大の不自由は、無知と、無意識である。
+
+> 人間は、意味のないような行動は納得できない。
+
+> 積極的になるためには「目的と意味」を持つ必要がある。
