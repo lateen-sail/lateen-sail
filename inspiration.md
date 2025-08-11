@@ -1,9 +1,5 @@
-##### 【YouTube】[人間としての哲学講座 5 考える人間としての在り方](https://youtu.be/g_VNdBPnGx0?si=IyeXsUAV4lx4Uwbk) - gaetano compri
+##### 【YouTube】[人間としての哲学講座 6 「考え」と「言葉」](https://youtu.be/RSxr3_CWNSM?si=wpcuy1SgeQgE3y2s) - gaetano compri
 
-> 私たちは一つの特徴を持っている。それは、"考える"ということ。"理性がある"ということ。
+> 言葉の意味はいつも「文字通り」ではない
 
-> 私たちにとってすべての物は時間と空間の中にある
-
-> 見、視、看、診、観
-
-> 人間の判断は自由ではありません
+> 正しいことを求める心をお互いになければならない
