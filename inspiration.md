@@ -1,7 +1,7 @@
-##### 【YouTube】[人間としての哲学講座 13 「人間としての在り方」と「生き方」の関係](https://youtu.be/_7Wx4OQpJtg?si=bpuzsVN3_XFAqEhY) - gaetano compri
+##### 【YouTube】[人間としての哲学講座 14 尊厳があり、心身一体である人間](https://youtu.be/FP1Trg8xwjM?si=P_bWM8wn9xuYUWGY) - gaetano compri
 
-> 「Agere sequitur esse、行動は在り方に従う」
+> カント「人間は、あなたも他人も、どんな時でも、どんな場合でも、いつでも目的であり、手段として使ってはならない」
 
-> 「生き方は、在り方に従う」、「生き方は、存在に基づく」「在り方」を知れば、「生き方」も知る
+> 人間は「尊厳や人権と義務の主体」であることを、表すために「Persona だ」と言う。
 
-> 私たちは、ある側面からの「人間」の善悪を判断する他に「人間として」の総合判断も行なっている。
+> Mens sana in corpore sano 健全な身体に健全な精神
